@@ -28,3 +28,10 @@ Many people, including myself, don't know when to stop and we take more and more
 3. Stop comparing yourself to others because that will never end.
 
 
+### Chapter 4: Compounding 
+
+Many of us don't take into consideration the idea of compounding. Your actions over the years will accumulate into either good or bad outcomes.
+
+1. Small things you do may seem unnecessary, but they're the core of what will come later.
+
+2. Good investing is not really about having the highest returns, but more about being consistent in having good enough returns.
